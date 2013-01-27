@@ -21,4 +21,4 @@ Wikiもねえ　書くことねえ
 
 Savannahへ出るだあ　Savannahへ出たなら
 
-銭こぁ貯めて　Savannahでベコ飼うだあ
+ゼニコぁ貯めて　Savannahでヌー飼うだあ
